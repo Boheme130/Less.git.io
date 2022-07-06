@@ -1,5 +1,6 @@
 ## Less
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+![avatar](https://d3i6fh83elv35t.cloudfront.net/static/2018/06/FS-Book-Fly-LESS-1024x576.jpg)
 <br/>
 <br/>
 
@@ -9,9 +10,8 @@
 评分：4.75/5 <br/>
 
 2018普利策小说获奖作品，基版奥德赛<br/>
-清水文，喜剧Comedy，文风轻散愉快，英雄史诗结构，游记，片段式写法，结尾有惊喜HE
+喜剧Comedy，文风轻散愉快，英雄史诗结构，游记，片段式写法，惊喜结局
 
-![avatar](https://d3i6fh83elv35t.cloudfront.net/static/2018/06/FS-Book-Fly-LESS-1024x576.jpg)
 
 这本书最精彩的是写法和语言不是剧情。散点透视的写法让主角Less的人生片段不断交织，历史、幻想，和现实混合产生了一种奇妙的阅读体验。整部书不断在跨越地球的现实地理和Less比地球更加涣散的头脑中不断转换，但作者高超的技巧让所有衔接都显得很自然顺畅，在阅读过程中Less和Freddy, Robert的情感往事被一点点揭露。这本书的语言也是一个大看点，除了对世界各地风情很有特色的选取描写，作者能把这么大量对文学产业、同性感情的反讽写得不愤世嫉俗，读的时候只会被Less丰富的内心活动和自我评述笑到，让我觉得有点像magniloquent版本的Alexis Hall (Read the book and you will appreciate the word “magniloquent”!)
 <br>
@@ -19,7 +19,6 @@
 <br>
 
 ## 剧情详解：
-
 Less是一个49岁的TXL作家，他年轻时和比大几十岁的普利策桂冠诗人Robert同居恋爱十多年，但分手后Less已经步入中年。Less和朋友Carlos的儿子Freddy开始了一段漫长的肉体关系。但两人从来不把对方当男友。Freddy步入三十，想和男友Thomas寻求一段稳定的婚姻，于是他断绝了和Less的关系。
 
 Less从未走出对Freddy的留念。一天，Less收到了Freddy婚礼的请柬，为了逃避这段尴尬的婚礼，Less开始了一段(近乎免费的)环球旅行。他接受了世界各地的作家活动请柬，同时，打算在这段旅程中度过自己的50岁。
